@@ -1,6 +1,6 @@
 # Induction_2025
 I went from the hostel to the college auditorium.
-Dr.Priya Darshni mam gave us a lecture on "UNIVERSAL  HUMAN VALUES" She told us about aspirations. We want to live a fulfilling life and we make efforts for it.Every person does some work or efforts to be successful.When he becomes sucessful,is he happy.No, it is not necessary that everyone will be happy after working hard and getting job.Yes, it is true that some people are not happy despite having all the material comforts. The reason is that happiness does not come from material things,but also from mental and emotional satisfaction.Success and happiness are personal experiences.In the end we all do work or efforts to make our family feel proud.And we also do all this for happiness.
+Dr.Priya Darshni mam gave us a lecture on "UNIVERSAL  HUMAN VALUES" She told us about aspirations. We want to live a fulfilling life and we make efforts for it.Every person does some work or efforts to be successful.When he becomes sucessful,is he happy.No, it is not necessary that everyone will be happy after working hard and getting job.Yes, it is true that some people are not happy despite having all the materialistic comforts. The reason is that happiness does not come from material things,but also from mental and emotional satisfaction.Success and happiness are personal experiences.In the end we all do work or efforts to make our family feel proud.And we also do all this for happiness.
 
 
  After that we have another lecture in auditorium.
