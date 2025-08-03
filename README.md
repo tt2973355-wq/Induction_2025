@@ -1,2 +1,3 @@
 # Induction_2025
-Trisha Thakur ME
+I went from the hostel to the college auditorium.
+Dr Priyadarshni mam gave us a lecture on "UNIVERSAL  HUMAN VALUES"
