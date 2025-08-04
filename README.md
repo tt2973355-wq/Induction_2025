@@ -1,6 +1,6 @@
 # Induction_2025
-
-##DAY 1
+# Day 1 
+##30th June 2025
 
 I went from the hostel to the college auditorium.In auditorium I meet the students of many branches.In auditorium the stage is fully decorated with flowers.
 
