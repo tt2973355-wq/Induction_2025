@@ -7,6 +7,7 @@ I went from the hostel to  "Gurudwara Sahib"and  then, I went to college auditor
 This is my first day in college. I was very excited because this is my first day in the college campus.
 Dr. Harpreet Kour Grewal the HOD of applied science guids us about branches.Then we visit the labs.
  
+
 # Day 2 
 ##Ist August 2025
  
@@ -22,6 +23,7 @@ Dr.Arvind Dhingra took our lecture on "PERSONALITY" He told us the our personali
 After that a team came and told us about buddy4study.He told us about "Satya Scholarship Scheme". This scheme is only for Ludhiana district students.He advised the students to fill this form and get scholarship.
 
 #Day 3
+
 ## 4th August 2025
 
 Every morning brings a new light.
