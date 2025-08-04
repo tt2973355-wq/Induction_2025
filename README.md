@@ -9,7 +9,7 @@ Dr. Harpreet Kour Grewal the HOD of applied science guids us about branches.Then
  
 
 # Day 2 
-##Ist August 2025
+## Ist August 2025
  
 
 The next day is coming with new hopes.
@@ -24,6 +24,6 @@ After that a team came and told us about buddy4study.He told us about "Satya Sch
 
 # DAY 3
 
-##4th August 2025
+## 4th August 2025
 
 Every morning brings a new light.
