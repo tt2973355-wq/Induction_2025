@@ -5,6 +5,7 @@
 I went from the hostel to  "Gurudwara Sahib"and  then, I went to college auditorium.I meet the students of many branches in auditorium and the stage is decorated with flowers.
 
 This is my first day in college. I was very excited because this is my first day in the college campus.
+Dr. Harpreet Kour Grewal the HOD of applied science guids us about branches.Then we visit the labs.
  
 # Day 2 
 ##Ist August 2025
