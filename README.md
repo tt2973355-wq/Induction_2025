@@ -22,7 +22,7 @@ Dr.Arvind Dhingra took our lecture on "PERSONALITY" He told us the our personali
 
 After that a team came and told us about buddy4study.He told us about "Satya Scholarship Scheme". This scheme is only for Ludhiana district students.He advised the students to fill this form and get scholarship.
 
-#Day 3
+#Day 4
 
 ## 4th August 2025
 
