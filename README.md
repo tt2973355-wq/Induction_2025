@@ -24,4 +24,4 @@ After that a team came and told us about buddy4study.He told us about "Satya Sch
 #Day 3
 ## 4th August 2025
 
-Everyday is
+Every morning brings a new light.
