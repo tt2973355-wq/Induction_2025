@@ -27,4 +27,5 @@ After that a team came and told us about buddy4study.He told us about "Satya Sch
 
 ## 4th August 2025
 
-Every morning brings a new light.
+### Every morning brings a new light.
+ On that morning Miss Taranpreet di delivers us a lecture on "Causmic Club".She explained briefly about Causmic Club.She tells us about the history of Causmic Club.This event firstly start with the GK Quiz.A trip took place after the events were over. On that year GNE Apex 4th version.In this version there are 14+ events.
