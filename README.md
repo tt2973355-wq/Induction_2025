@@ -1,6 +1,7 @@
 # Induction_2025
 # Day 1 
 ##30th June 2025
+
 I went from the hostel to  "Gurudwara Sahib"and  them we  went to vollege auditorium.In auditorium I meet the students of many branches.In auditorium the stage is decorated with flowers.
 This is my first day in college.And I was very excited because this is my first day in the college campus.
 
