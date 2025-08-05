@@ -1,4 +1,4 @@
-He told us about machin# Induction_2025
+After that we hHe told us about machin# Induction_2025
 # Day 1 
 ## 30th June 2025
 ### My first day in college.
@@ -17,7 +17,7 @@ Dr.Priya Darshni mam gave us a lecture on "UNIVERSAL  HUMAN VALUES" She told us 
 
 
  After that we have another lecture in auditorium.
-Dr.Arvind Dhingra took our lecture on "PERSONALITY" He told us the our personality is shown by our behaviour.He told us about personality through games.He called the children on the stage, which help them overcome their fear. He asked for 7 boys and 7 girls to come up on the stage. And the students who wins the game got 
+Dr.Arvind Dhingra took our lecture on "PERSONALITY" He told us the our personality is shown by our behaviour.He told us about personality through games.He called the students on the stage, which help them overcome their fear. He asked for 7 boys and 7 girls to come up on the stage. And, I am also one of them. Those students who wins the game receive chocolate as a prize.But unfortunately we defeat the game and loss those chocolate. But this opportunity finish our fear to come on the stage and we enjoy these games.
 
 
 After that a team came and told us about buddy4study.He told us about "Satya Scholarship Scheme". This scheme is only for Ludhiana district students.He advised the students to fill this form and get scholarship.
@@ -36,3 +36,7 @@ Then Mr.Gautam Maurria delivers a  lecture on
 
 Then Dr. Priya Drshni mam gave us a lecture on UHV
 (UNIVERSAL HUMAN VALUES)Session-2.She tells us that we do work to fulfill our basic requirements. We all want to live a life which is full of joy, happiness and prosperity.But how we can achieve all these things.To live a proper life firstly, we know ourself.Who we are and What we want.If we know all these things then we can say that we are happy.
+
+
+Next lecture was delivered by Prof Jaswant Singh
+on"Programing language," He tells us about coding and decoding.
