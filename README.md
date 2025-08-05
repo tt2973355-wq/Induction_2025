@@ -1,4 +1,4 @@
-T# Induction_2025
+# Induction_2025
 # Day 1 
 ## 30th June 2025
 ### My first day in college.
@@ -30,3 +30,6 @@ After that a team came and told us about buddy4study.He told us about "Satya Sch
 ### Every morning brings a new light.
  On that morning Miss Taranpreet di delivers us a lecture on "Causmic Club".She explained briefly about Causmic Club.She tells us about the history of Causmic Club.This event firstly start with the GK Quiz.A trip took place after the events were over. On that year GNE Apex 4th version.In this version there are 14+ events.
 Then she tells us about GitHub. She tells us that how we can inroll and submit our work in GitHub.
+
+Then Mr.Gautam Maurria delivers a  lecture on  
+"Motorsports".
