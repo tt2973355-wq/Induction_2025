@@ -1,4 +1,4 @@
-After that we hHe told us about machin# Induction_2025
+# Induction_2025
 # Day 1 
 ## 30th June 2025
 ### My first day in college.
