@@ -34,3 +34,5 @@ Then Mr.Gautam Maurria delivers a  lecture on
 "Motorsports". He told us about machines and how why the engineers made motorcars.
 
 
+Then Dr. Priya Drshni mam gave us a lecture on UHV
+(UNIVERSAL HUMAN VALUES)Session-2.She tells us that we do work to fulfill our basic requirements. We all want to live a life which is full of joy, happiness and prosperity.But how we can achieve all these things.To live a proper life firstly, we know ourself.Who we are and What we want.If we know all these things then we can say that we are happy.
