@@ -1,4 +1,4 @@
-# Induction_2025
+He told us about machin# Induction_2025
 # Day 1 
 ## 30th June 2025
 ### My first day in college.
@@ -31,4 +31,6 @@ After that a team came and told us about buddy4study.He told us about "Satya Sch
 Then she tells us about GitHub. She tells us that how we can inroll and submit our work in GitHub.
 
 Then Mr.Gautam Maurria delivers a  lecture on  
-"Motorsports".
+"Motorsports". He told us about machines and how why the engineers made motorcars.
+
+
