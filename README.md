@@ -3,10 +3,9 @@
 ## 30th June 2025
 ### My first day in college.
 
-I went from the hostel to  "Gurudwara Sahib"and  then, I went to college auditorium.I meet the students of many branches in auditorium and the stage is decorated with flowers.
+Firstly,I went from the hostel to  "Gurudwara Sahib"and  then, I went to college auditorium where we sit according to our branches.in auditorium .The stage is decorated with flowers.Our senior hosts the stage.
 
-This is my first day in college. I was very excited because this is my first day in the college campus.
-Dr. Harpreet Kour Grewal the HOD of applied science guids us about branches.Then we visit the labs.
+This is my first day in college and I was very excited. Dr. Harpreet Kour Grewal the HOD of applied science guids us about branches and gave amotivating lesson to us.Then we visit the labs.
  
 
 # Day 2 
