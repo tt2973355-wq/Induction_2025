@@ -37,6 +37,12 @@ Then Mr.Gautam Maurria delivers a  lecture on
 Then Dr. Priya Drshni mam gave us a lecture on UHV
 (UNIVERSAL HUMAN VALUES)Session-2.She tells us that we do work to fulfill our basic requirements. We all want to live a life which is full of joy, happiness and prosperity.But how we can achieve all these things.To live a proper life firstly, we know ourself.Who we are and What we want.If we know all these things then we can say that we are happy.
 
-
 Next lecture was delivered by Prof Jaswant Singh
 on"Programing language," He tells us about coding and decoding.
+
+# Day 5 
+## 5th August 2025
+The induction program is currently on its 5th day,and today's session focused on"MotorSports "
+Mr. Gautam Maurria delivers this lecture.He tells us about Motor sports and what is the purpose of making these Motorsports are sporting events,that involves the use of automobiles, motorcycles and so many.He tells us the last year the student of our college made a model of car and earn prize money.He says the the students also do work in workshop and make models and show his or her performance.
+
+Then our next lecture is held on auditorium Mrs.Shaffy Makkar gave us a lecture on"Millets Super Food".She explains briefly about millets. She says that at present time we all take the food that is cooked fast.For eg we take rice and wheat in our daily meal.But don't take millets in our daily meal because it take long time to be cooked.But millets are very good for our health. Millets are very good for our health as well as our diet.It is rich of proteins and minerals. It's nutritional value is very high.Millets are also grown in drought areas.If we take millets in our diet regularly it improves our physically as well as mentally growth.
