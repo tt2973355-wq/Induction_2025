@@ -40,9 +40,13 @@ Then Dr. Priya Drshni mam gave us a lecture on UHV
 Next lecture was delivered by Prof Jaswant Singh
 on"Programing language," He tells us about coding and decoding.
 
-# Day 5 
+# Day 4
 ## 5th August 2025
-The induction program is currently on its 5th day,and today's session focused on"MotorSports "
+The induction program is currently on its 4th day,and today's session focused on"MotorSports "
 Mr. Gautam Maurria delivers this lecture.He tells us about Motor sports and what is the purpose of making these Motorsports are sporting events,that involves the use of automobiles, motorcycles and so many.He tells us the last year the student of our college made a model of car and earn prize money.He says the the students also do work in workshop and make models and show his or her performance.
 
 Then our next lecture is held on auditorium Mrs.Shaffy Makkar gave us a lecture on"Millets Super Food".She explains briefly about millets. She says that at present time we all take the food that is cooked fast.For eg we take rice and wheat in our daily meal.But don't take millets in our daily meal because it take long time to be cooked.But millets are very good for our health. Millets are very good for our health as well as our diet.It is rich of proteins and minerals. It's nutritional value is very high.Millets are also grown in drought areas.If we take millets in our diet regularly it improves our physically as well as mentally growth.
+# Day 5
+## 6th August 2025
+Now the induction programme is on its  6th day. Dr.Parminfer Singh gave us a lecture on " Dean - Student Welfare"He tells about Causmic clubs and societies.He tells briefly about the institute and type of activities that are performed in this institute.
+After that Mr.Manpreet Singh gave us a lecture on
