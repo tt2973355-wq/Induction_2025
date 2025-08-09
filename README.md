@@ -50,3 +50,6 @@ Then our next lecture is held on auditorium Mrs.Shaffy Makkar gave us a lecture 
 ## 6th August 2025
 Now the induction programme is on its  6th day. Dr.Parminfer Singh gave us a lecture on " Dean - Student Welfare"He tells about Causmic clubs and societies.He tells briefly about the institute and type of activities that are performed in this institute.
 After that Mr.Manpreet Singh gave us a lecture on
+ " Fitness for Engineers". His lecture motivates the students.He advised the students not to take any type of drugs.He says that those who takes drugs can spoil his family and future also. He advised the students do exercise regularly.And we
+should also maintain our diet.He tells his own story.His story motivate me very much.He said firstly,we need to set our goals.Then we work hard to achieve our goals.
+ Then our last lecture is held on auditorium "Brigader P.S Cheema"delivers this lecture.He explains briefly about the Armed forces and NCC.He said that those who join NCC learn to stay in discipline.It improves our physical as well as mental growth.We learn to live in unity ,peace and harmony.He also said that there are many benifits of NCC certificate.We can directly join Armed forces by this certificate after passing ssb.By joining NCC a student explore his thinking. By this our lecture ends.
