@@ -1,4 +1,4 @@
-# Induction_2025
+#Day # Induction_2025
 # Day 1 
 ## 30th June 2025
 ### My first day in college.
@@ -53,3 +53,8 @@ After that Mr.Manpreet Singh gave us a lecture on
  " Fitness for Engineers". His lecture motivates the students.He advised the students not to take any type of drugs.He says that those who takes drugs can spoil his family and future also. He advised the students do exercise regularly.And we
 should also maintain our diet.He tells his own story.His story motivate me very much.He said firstly,we need to set our goals.Then we work hard to achieve our goals.
  Then our last lecture is held on auditorium "Brigader P.S Cheema"delivers this lecture.He explains briefly about the Armed forces and NCC.He said that those who join NCC learn to stay in discipline.It improves our physical as well as mental growth.We learn to live in unity ,peace and harmony.He also said that there are many benifits of NCC certificate.We can directly join Armed forces by this certificate after passing ssb.By joining NCC a student explore his thinking. By this our lecture ends.
+# Day 6
+##7th August 2025
+Today is the last day of inductive programme.Dr. Lakhvir Singh gave us alecture on CML(Center for multifaceted learning).It is not a society but it is a centre.In CML a student can do work in various fields.It is also related to our education's skill development.He also tells about ntpl.In ntpl astudent can buy any cource according to his own choice.If the student can score much marks then he will also eligible to go to abroad for studies.It is also very beneficial for us.With this our lecture ended.
+After that Dr. Jaswor Singh Grewal told us about 
+ NSS.After joining NSS we can do soial service and help the people.There are many camps and drives under NSS. Such as cleanliness drive,blood donation camp 
